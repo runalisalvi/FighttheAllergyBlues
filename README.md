@@ -1,1 +1,1 @@
-# FighttheAllergyBlues
+My name is Runali Salvi and my whole life i have been dealing with severe food allergies. My allergies include amoxicillin, beef, dairy, egg/ egg white, fish, gluten, green peas, lentils, milk, peanuts, penicillin G, sesame, shellfish, tree nuts, wheat bran. Growing up I’ve learned how to navigate around them and have a positive relationship with food despite the restrictions. My goal is to create a safe space and educate people on food allergies!
